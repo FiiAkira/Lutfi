@@ -1,3 +1,1 @@
-# Lutfi
-# FiiAkiraID
 # FiiAkiraID
